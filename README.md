@@ -155,5 +155,5 @@ In the case of Prizes in the form of tickets, you will be bound by and comply wi
 For all queries or the name(s) of the verified winner(s) (which will only be available one month from the draw date) please contact:  AETN UK, Competition Queries, Legal & Business Affairs Department, 1 Queen Caroline Street, London, W6 9YN.
 AETN UK Company Number 03105704
 
-Updated 21/05/2018
+Updated 23/11/2023
 v.1.0
